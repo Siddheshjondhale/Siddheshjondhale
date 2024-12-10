@@ -1,5 +1,5 @@
 # 💫 About Me:
-Passionate developer on a quest to turn<br>caffeine into code, one line at a time.<br><br>🌍 Let's connect and collaborate on exciting projects that<br>push the boundaries of what's possible! 🚀
+Hi I'm Siddhesh Jondhale.<br><br>🌍 Let's connect and collaborate on exciting projects that<br>push the boundaries of what's possible! 🚀
 
 
 ## 🌐 Socials:
